@@ -1,0 +1,2 @@
+# sudutpandang
+Bismillah
